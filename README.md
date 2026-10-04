@@ -1,1 +1,1 @@
-# BEFORE-WE-SAY-_GOODBYE
+sebelum kita mengucapkan selamat tinggal
